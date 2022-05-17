@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @aigulcross
 - 👀 I’m interested in IT
-- 🌱 I’m currently learning everuthing what I didn't learn yet:)
+- 🌱 I’m currently learning everything what I didn't learn yet:)
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
